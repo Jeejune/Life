@@ -1,4 +1,4 @@
-# Life-Tips
+# Tips for Life
 
 
 0. 一日三餐
